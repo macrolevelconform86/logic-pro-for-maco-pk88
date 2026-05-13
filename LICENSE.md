@@ -1,4 +1,4 @@
-# 
+# Logic Pro for macOS custom Plugin - scene-transitions and AI-upscaling is the best Logic Pro for macOS plugin, featuring scene-transitions and AI-upscaling. Safe, efficient, and
 
 
 
